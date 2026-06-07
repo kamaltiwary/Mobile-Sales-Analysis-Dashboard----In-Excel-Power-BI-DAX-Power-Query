@@ -89,4 +89,4 @@ Smartphone retail is competitive and fast-moving. Teams need a single source of 
 **Data Analyst**
 
 📧 **kamalnayantiwary73@gmail.com**  
-🔗 [LinkedIn](https://www.linkedin.com/in/kamal-nayan-tiwary-2022-2026-/)
+🔗 [LinkedIn](http://www.linkedin.com/in/kamalnayantiwary)
